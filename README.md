@@ -23,4 +23,4 @@
 4. 尊重版权
 尽管有很多免费的内容，还是建议通过正规渠道观看，支持正版。通过合法方式观看，不仅可以避免法律风险，也能支持创作者的持续创作。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/mua246/23456 ）</span>
